@@ -13,7 +13,6 @@
   <p>𝒯𝒽𝒶𝓉 𝓎𝑜𝓊 𝓃𝑒𝑒𝒹 𝓉𝑜 𝑒𝓍𝓅𝓁𝑜𝓇𝑒</p>
   <p>𝐼𝓉'𝓈 𝓉𝒽𝑒 𝓈𝑜𝓊𝓃𝒹 𝑜𝒻 𝓉𝒽𝑒 𝓇𝒶𝒾𝓁</p>
 <p>𝒯𝒽𝒶𝓉 𝓎𝑜𝓊 𝓁𝑜𝓋𝑒 𝒶𝓃𝒹 𝒶𝒹𝑜𝓇𝑒</p>
-<p><a href="https://www.youtube.com/watch?v=mHCvRD-2ouc&list=PLX5hCViO2ncSIvIZHDbts1EAJIeY1gBai"> 𝓙𝓪𝓿𝓪𝓕𝓧 - 𝓕𝓾𝓵𝓵 𝓣𝓾𝓽𝓸𝓻𝓲𝓪𝓵 < 𝓡𝓮𝓼𝓽𝓪𝓾𝓻𝓪𝓷𝓽 𝓜𝓪𝓷𝓪𝓰𝓮𝓶𝓮𝓷𝓽 𝓢𝔂𝓼𝓽𝓮𝓶 ></a><p>
   
 </div>
     <div align="center">
